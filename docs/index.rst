@@ -9,7 +9,7 @@ How to Sign In to Hulu TV on a Smart TV?
    :alt: My Project Logo
    :width: 400px
    :align: center
-   :target: https://aclogportal.com/fixmestick-sign-in-account
+   :target: https://hulutvaccount.com
 __________
 
 Hulu TV is one of the most popular streaming platforms, offering a wide range of TV shows, movies, and live channels. Watching Hulu TV on a smart TV enhances your viewing experience by bringing high-definition entertainment directly to your living room. Whether you're new to Hulu or switching devices, this guide will walk you through how to sign in to Hulu TV on a smart TV easily and efficiently. "`hulu tv sign in account <https://hulutvaccount.com>`_"
